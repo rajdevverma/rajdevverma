@@ -13,3 +13,6 @@ C 'C++' DSA 'python ' Java
 BCA student d.s college katihar 
 My teacher Sourabh sukhla #mysirg
  
+https://instagram.com/rajdevverm_?igshid=YmMyMTA2M2Y=
+https://www.facebook.com/Rajdevvermard
+https://wa.me/message/PR5BDS7LFG2YF1
